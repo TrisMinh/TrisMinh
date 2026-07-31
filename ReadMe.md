@@ -1,5 +1,5 @@
 # 💫 About Me:
-I am a student of Danang University of Technology.
+I am a student at Danang University of Science and Technology.
 
 
 ## 🌐 Socials:
